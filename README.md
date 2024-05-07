@@ -1,3 +1,5 @@
+ ▶︎ •၊၊||၊|။||||။ ၊|• 0:10
+      
 ✩₊˚.⋆☾⋆⁺₊em português₊˚.⋆𖤓₊˚.⋆✧
  oiê, tudo bem? seja bem-vindo a minha página
  me chamo Isabela Karla, mas amo ser chamada de Bela ☆
@@ -11,4 +13,3 @@ currently, i´m a student of Sistems Analysis and Development at CESAR School an
 here you will find my projects and experiences with programming languages, enjoy ;) 
 
 
-![New Piskel](https://github.com/isabelakarla/isabelakarla/assets/164069423/dea06296-5b53-4da9-b65c-65c349abba1e)
