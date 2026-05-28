@@ -1,4 +1,6 @@
-Hi there! I'm Isabela Karla, Systems Analysis and Development student at @CESAR School & a technology tutor and researcher at @CESAR :)
+Hi there! 
+I'm Isabela Karla, Systems Analysis and Development student at @CESAR School 
+& a technology tutor and researcher at @CESAR :)
 
 .　　　　　　　　　　⠀⠀⠀✦ ⠀ ⠀　　　　　　　　　　　　　　⠀⠀⠀⠀⠀* ⠀⠀⠀.　　　　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀✦⠀⠀⠀
 ⠀.　　　　　　　　　　　　　.　　　ﾟ .　　　　　　　　　　　　　. 　　　　　　　　　　　　　　　✦ 　　　　　,　　　　　　　. ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ 　　　　　　*　　　　　　　　　　　. .　　　　　　　　✦⠀　   　　　,　　　　　　　　　* 　　　　　⠀　　　　⠀　　, ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.　　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀
